@@ -8,3 +8,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Muhammad Luthfi Khusyasy, [khusyasy.com](https://khusyasy.com)
+* Bob, [LinkedIn](https://www.linkedin.com/in/khusyasy/)
